@@ -1,1 +1,1 @@
-hey this is normal card! xoxo
+hey this is normal card!
